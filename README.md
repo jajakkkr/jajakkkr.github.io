@@ -1,1 +1,0 @@
-# jajakkkr.github.io
